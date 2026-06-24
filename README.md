@@ -1,5 +1,5 @@
 ## Me Just Being Me
-<img width="600" height="450" alt="Image" src="https://github.com/user-attachments/assets/b4b41f61-a3da-4deb-85b0-c71a58bd5e63" />
+<img width="480" height="270" alt="Image" src="https://github.com/user-attachments/assets/cc4fccf3-1c55-4b3b-950c-d77b83133299" />
 
 
 <!--
