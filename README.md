@@ -1,4 +1,4 @@
-## Hi there 👋
+## Me Just Being Me
 <img width="480" height="266" alt="Image" src="https://github.com/user-attachments/assets/95f03627-ab32-45c4-ae5e-74c2410d427d" />
 
 
